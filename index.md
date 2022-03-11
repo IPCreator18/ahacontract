@@ -1,5 +1,9 @@
 # 啊哈，合同！
 
+![image](https://user-images.githubusercontent.com/101396496/157851298-31b86e29-ddd5-4bb9-8126-b722ccc4443d.png)
+![image](https://user-images.githubusercontent.com/101396496/157851368-e3dc5510-522e-47a8-ac81-943043babeea.png)
+> 好的合同，就如好的专利，也是艺术品，简洁优雅，甚至性感。
+
 ## [专利许可合同主要条款的起草与审核](http://www.lifanglaw.com/uploads/email/zw.43.pdf)
 
 ——文/于海东 合伙人
